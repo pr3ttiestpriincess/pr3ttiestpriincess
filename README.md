@@ -3,4 +3,4 @@
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image alt](https://github.com/pr3ttiestpriincess/pr3ttiestpriincess/blob/a9a422a7e7a146b61ad6f1bc4581d2579e225248/pr3typriincesgif.gif)
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀APPLICATIONS OPEN!
                                                        
-                                   ![pr3typriincess-punch](https://github.com/user-attachments/assets/499d6bfc-1663-4d87-8baa-55edcea72b55)
+                                   ![image alt](https://github.com/user-attachments/assets/499d6bfc-1663-4d87-8baa-55edcea72b55)
