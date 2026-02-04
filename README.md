@@ -4,6 +4,6 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=ad2f98)
 
- note : i dont have THAT MUCH (keyword, much) interest in forsaken anymore, though i int with the fandom/sit at the fandoms area, im more interested in pr3tyverse/project duzii and die of death & roblox myths !!
- if i follow u i either find u cool or think ur skins are cool
+<img width="538" height="348" alt="lacelacelacepng" src="https://github.com/user-attachments/assets/1ee89f70-d7c4-4c02-8df0-24d6b76cee06" />
+
  
