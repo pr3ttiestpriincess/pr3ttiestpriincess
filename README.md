@@ -1,5 +1,5 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀read me ♡
-
+ALWAYS IWC. drama is stressing me out especially because i also have sm1 copying me and harrassing me
 ![meeeepr3ty](https://github.com/user-attachments/assets/c409bca4-f573-46b6-8cfb-61678a043de8)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=ad2f98)
