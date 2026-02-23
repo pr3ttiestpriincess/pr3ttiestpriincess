@@ -1,4 +1,3 @@
-<p align="center">
 ## NEW STRAWPAGE !!
 <p align="center">
 read me ♡
