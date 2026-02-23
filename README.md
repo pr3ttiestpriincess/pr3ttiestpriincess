@@ -2,10 +2,10 @@
 <p align="center">
 read me ♡
 
-[meeeepr3ty](https://github.com/user-attachments/assets/cfccc0fb-bb9b-4cda-80d9-2ab2ca7ecee7)
+　　　　　　　　　　　　　　　　　　　　　　　[meeeepr3ty](https://github.com/user-attachments/assets/cfccc0fb-bb9b-4cda-80d9-2ab2ca7ecee7)
 
 
- ![](https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=ad2f98)
+　　　　　　　　　　　　　　　　　　　　　　 ![](https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=ad2f98)
 <p align="center">
  ͡  ֪ ♡ dni if you fictkin/kin pr3ty. i fictkin her so i believe was her in a past life and doubles make me uncomf and extremely upset ໒⁀ ᩧຼ
 <img width="185" height="185" alt="gandalfpetgubbypr3typriincess" src="https://github.com/user-attachments/assets/f755bad2-ec7c-49a0-b0bc-f3cee4061322" />　　　　　　　　　　　　　　　　　　　　
