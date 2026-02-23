@@ -3,7 +3,7 @@
 <p align="center">
 read me ♡
 <p align="center">
-![meeeepr3ty](https://github.com/user-attachments/assets/c409bca4-f573-46b6-8cfb-61678a043de8)
+[meeeepr3ty](https://github.com/user-attachments/assets/7112f8d1-d301-4d5d-94d8-d69d12d19878)
 <p align="center">
 ![](https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=ad2f98)
 <p align="center">
