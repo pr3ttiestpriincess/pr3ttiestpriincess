@@ -5,7 +5,7 @@ read me ♡
  ![meeeepr3ty](https://github.com/user-attachments/assets/108dea29-75a9-4326-9aba-7adcd05bc969)
 
 
-<p align="center">
+
 ![](https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=ad2f98)
 <p align="center">
  ͡  ֪ ♡ dni if you fictkin/kin pr3ty. i fictkin her so i believe was her in a past life and doubles make me uncomf ໒⁀ ᩧຼ
