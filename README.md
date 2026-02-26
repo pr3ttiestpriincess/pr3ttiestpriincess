@@ -1,8 +1,10 @@
 ## NEW STRAWPAGE !!
 <p align="center">
 read me ♡
-<p align="center">
- ![](https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=ad2f98)
+<center>
+  [Your Link Text](https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=ad2f98)
+</center>
+ 
 <p align="center">
  ͡  ֪ ♡ dni if you fictkin/kin pr3ty. i fictkin her & im a pr3ty IRL so i believe was her in a past life and doubles make me uncomf ໒⁀ ᩧຼ
 <p align="center">
