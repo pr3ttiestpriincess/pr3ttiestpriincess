@@ -1,6 +1,10 @@
 <p align="center">
 read me ♡
 
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=F0D1D8" alt="visitor counter">
+</p>
+
 <img width="1199" height="871" alt="pr3tybluucool" src="https://github.com/user-attachments/assets/b261d412-d1d2-4c4c-b56a-570a23441a27" />
 
 
