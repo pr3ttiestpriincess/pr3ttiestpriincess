@@ -1,7 +1,9 @@
 <p align="center">
 read me ♡
 
- ![](https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=ad2f98)
+<p align="center">
+  <img src="[http://some_place.com/image.png](https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=ad2f98)" />
+</p>
 
 <p align="center">
  ͡  ֪ ♡ dni if you fictkin/kin pr3ty. i fictkin her & im a pr3ty IRL so i believe was her in a past life and doubles make me uncomf ໒⁀ ᩧຼ
