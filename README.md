@@ -2,6 +2,9 @@
 <p align="center">
 read me ♡
 
+<div align="center">
+p͟f͟p͟ b͟y͟ v͟e͟i͟l͟z͟z͟l͟i͟v͟e͟r͟r͟i͟n͟g͟ o͟n͟ p͟i͟n͟t͟e͟r͟e͟s͟t͟ c͟r͟e͟d͟s͟ t͟o͟ t͟h͟e͟m͟ ^-^
+
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=F0D1D8" alt="visitor counter">
 </p>
@@ -25,5 +28,3 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
   <img width="271" height="57" alt="text4gh" src="https://github.com/user-attachments/assets/cb54f155-042e-4986-bd2a-77564d1f447a" />
 <img width="832" height="56" alt="borderfancy" src="https://github.com/user-attachments/assets/64b26289-c43a-4315-86a6-5472edbe5f1d" />
 
-<div align="center">
-pfp by veilzzliverring on pinterest creds to them ^-^
