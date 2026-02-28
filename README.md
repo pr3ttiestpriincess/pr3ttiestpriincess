@@ -14,7 +14,17 @@ read me ♡
 <p align="center">
 note: i ALWAYS allow c+h (except for people on my dni) even when its not in my name but i feel i need to specify i wont talk to u when u c+h with me if ur not a friend
 
-[STRAWPAGE](https://pr3ttiestofthemall.straw.page/) [OLD STRAWPAGE](https://b3autiifulpriincess.straw.page/) [ATA](https://pr3ttiestpriincess.atabook.org/)
+
+<p align="center">
+  [STRAWPAGE](https://pr3ttiestofthemall.straw.page/)
+</p>
+<p align="center">
+  [OLD STRAWPAGE](https://b3autiifulpriincess.straw.page/)
+</p>
+<p align="center">
+  [ATA](https://pr3ttiestpriincess.atabook.org/)
+</p>
+
 
 <p align="center">
   <img width="271" height="57" alt="text4gh" src="https://github.com/user-attachments/assets/cb54f155-042e-4986-bd2a-77564d1f447a" />
