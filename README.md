@@ -11,7 +11,8 @@ p͟f͟p͟ b͟y͟ v͟e͟i͟l͟z͟z͟l͟i͟v͟e͟r͟r͟i͟n͟g͟ o͟n͟ p͟i͟n͟t
 </p>
 
 <img width="1199" height="871" alt="pr3tybluucool" src="https://github.com/user-attachments/assets/b261d412-d1d2-4c4c-b56a-570a23441a27" />
-
+<p align="center">
+a͟r͟t͟ i͟n͟ m͟y͟ r͟e͟a͟d͟m͟e͟ i͟s͟ b͟y͟ M͟r͟S͟t͟a͟r͟i͟a͟c͟ o͟n͟ x͟ (͟ i͟ t͟h͟i͟n͟k͟ ?͟ )͟ c͟r͟e͟d͟s͟ t͟o͟ t͟h͟e͟m͟ 
 
 <p align="center">
  ͡  ֪ ♡ dni if you fictkin/kin pr3ty. i fictkin her & im a pr3ty IRL so i believe was her in a past life and believe i am her so doubs make me uncomf ໒⁀ ᩧຼ
