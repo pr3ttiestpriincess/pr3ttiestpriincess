@@ -17,7 +17,7 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
 [STRAWPAGE](https://pr3ttiestofthemall.straw.page/) [OLD STRAWPAGE](https://b3autiifulpriincess.straw.page/) [ATA](https://pr3ttiestpriincess.atabook.org/)
 
 <p align="center">
-  <link src="https://pr3ttiestofthemall.straw.page/">
+  <img src="https://pr3ttiestofthemall.straw.page/">
 </p>
 
 <p align="center">
