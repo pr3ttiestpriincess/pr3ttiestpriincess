@@ -25,6 +25,8 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
 
 </div>
 
+<div align="center">
+ALWAYS. iwc and care
 
 <p align="center">
   <img width="271" height="57" alt="text4gh" src="https://github.com/user-attachments/assets/cb54f155-042e-4986-bd2a-77564d1f447a" />
