@@ -34,3 +34,5 @@ ALWAYS. i̲w̲c̲ and c̲a̲r̲e̲
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yamlikt54q6bmfkv42u75jjmei&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false">
   </a>
 </p>
+
+<img width="832" height="56" alt="borderfancy" src="https://github.com/user-attachments/assets/64b26289-c43a-4315-86a6-5472edbe5f1d" />
