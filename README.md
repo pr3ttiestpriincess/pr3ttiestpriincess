@@ -35,5 +35,14 @@ ALWAYS. i̲w̲c̲ and c̲a̲r̲e̲
   </a>
 </p>
 this spotify thing looks ahh on my profile 💝
-
+<p align="center">
+ねえ　もしもし　大変大変　帰り道にグリズリーがいるの
+<p align="center">
+  助けて　私、恐くて一歩も動けないよ
+<p align="center">
+  今すぐ来て　助けて　きゃー　こっちに来るよー
+<p align="center">
+  私のこと見てる　いやー
+<p align="center">
+  助けてよー　あーれー
 <img width="832" height="56" alt="borderfancy" src="https://github.com/user-attachments/assets/64b26289-c43a-4315-86a6-5472edbe5f1d" />
