@@ -18,7 +18,7 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
 
 <div align="center">
 
-[STRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [OLD STRAWPAGE](https://b3autiifulpriincess.straw.page) &nbsp; [ATA](https://pr3ttiestpriincess.atabook.org) &nbsp; [PRONOUNS.CC](https://pronouns.cc/@pr3ttiestpriincess)
+[STRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [OLD STRAWPAGE](https://b3autiifulpriincess.straw.page) &nbsp; [ATA](https://pr3ttiestpriincess.atabook.org) &nbsp; [PRONOUNS.CC](https://pronouns.cc/@pr3ttiestpriincess) &nbsp; [AGERE STRAWPAGE](https://pr3tyscastle.straw.page/)
 
 </div>
 
