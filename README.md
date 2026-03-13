@@ -14,7 +14,7 @@ ALSO PR3TY FANS OR PEOPLE THAT LIKE PR3TY PLS INT I DONT MIND YOU GUYS AT ALL I 
 a͟r͟t͟ i͟n͟ m͟y͟ r͟e͟a͟d͟m͟e͟ i͟s͟ b͟y͟ M͟r͟S͟t͟a͟r͟i͟a͟c͟ o͟n͟ x͟ (͟ i͟ t͟h͟i͟n͟k͟ ?͟ )͟ c͟r͟e͟d͟s͟ t͟o͟ t͟h͟e͟m͟ 
 
 <p align="center">
- ͡  ֪ ♡ dni if you fictkin/kin pr3ty. i fictkin her & im a pr3ty IRL so i believe was her in a past life and believe i am her so doubs make me uncomf ໒⁀ ᩧຼ
+ ͡  ֪ ♡ dni if you fictkin/kin pr3ty. i fictkin her & im a pr3ty IRL + fullkin so i believe was her in a past life and believe i am her so doubs make me uncomf ໒⁀ ᩧຼ
 <p align="center">
 note: i ALWAYS allow c+h (except for people on my dni) even when its not in my name 
 
