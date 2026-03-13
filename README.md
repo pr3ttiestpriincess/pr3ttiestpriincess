@@ -27,6 +27,8 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
 </div>
 
 <div align="center">
+i have 2 (well 3 kinda) strawpages because i felt like it 😴😴
+<div align="center">
 ALWAYS. i̲w̲c̲ and c̲a̲r̲e̲
 
 <p align="center">
