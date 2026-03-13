@@ -2,6 +2,8 @@
 <p align="center">
 read me ♡
 
+<p align="center">
+ALSO PR3TY FANS OR PEOPLE THAT LIKE PR3TY PLS INT I DONT MIND YOU GUYS AT ALL I LOVE PR3TY FANS ^_^
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=F0D1D8" alt="visitor counter">
