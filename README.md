@@ -21,6 +21,12 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
 
 </div>
 
+<p align="center">
+  <a href="https://git.io">
+    <img src="https://readme-typing-svg.demolab.com" alt="Typing SVG" />
+  </a>
+</p>
+
 
 <div align="center">
 i have 2 (well 3 kinda) strawpages because i felt like it 😴😴
