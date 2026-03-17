@@ -23,11 +23,9 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
 
 
 
-<p align="center">
-
-![Typing SVG](https://readme-typing-svg.demolab.com)
-
-</p>
+<div align="center">
+  <img src="https://readme-typing-svg.demolab.com" />
+</div>
 
 
 
