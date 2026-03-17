@@ -22,9 +22,7 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
 </div>
 
 <p align="center">
-  <a href="https://git.io">
-    <img src="https://readme-typing-svg.demolab.com" alt="Typing SVG" />
-  </a>
+  <img src="https://readme-typing-svg.demolab.com" />
 </p>
 
 
