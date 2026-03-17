@@ -3,11 +3,6 @@
 read me ♡
 
 <p align="center">
-𝒜͟𝐿͟𝒮͟𝒪͟  𝒫͟𝑅͟3͟𝒯͟𝒴͟  𝐹͟𝒜͟𝒩͟𝒮͟  𝒪͟𝑅͟  𝒫͟𝐸͟𝒪͟𝒫͟𝐿͟𝐸͟  𝒯͟𝐻͟𝒜͟𝒯͟  𝐿͟𝐼͟𝒦͟𝐸͟  𝒫͟𝑅͟3͟𝒯͟𝒴͟  
-<p align="center">
-  𝒫͟𝐿͟𝒮͟ 𝐼͟𝒩͟𝒯͟  𝐼͟  𝒟͟𝒪͟𝒩͟𝒯͟  𝑀͟𝐼͟𝒩͟𝒟͟  𝒴͟𝒪͟𝒰͟  𝒢͟𝒰͟𝒴͟𝒮͟  𝒜͟𝒯͟  𝒜͟𝐿͟𝐿͟  𝐼͟  𝐿͟𝒪͟𝒱͟𝐸͟  𝒫͟𝑅͟3͟𝒯͟𝒴͟  𝐹͟𝒜͟𝒩͟𝒮͟  ^_^
-
-<p align="center">
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=F0D1D8" alt="visitor counter">
 </p>
 
@@ -25,6 +20,12 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
 [STRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [2ND STRAWPAGE](https://pr3tyslacedbow.straw.page/) &nbsp; [ATA](https://pr3ttiestpriincess.atabook.org) &nbsp; [PRONOUNS.CC](https://pronouns.cc/@pr3ttiestpriincess) &nbsp; [AGEDRE STRAWPAGE](https://pr3tyscastle.straw.page/)
 
 </div>
+
+<p align="center">
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=E0C2C8&width=435&lines=its+proper+etiquette;to+respect+your+hostess)](https://git.io/typing-svg)
+</p>
+
+
 
 <div align="center">
 i have 2 (well 3 kinda) strawpages because i felt like it 😴😴
