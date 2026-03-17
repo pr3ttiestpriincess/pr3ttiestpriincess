@@ -21,10 +21,7 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
 
 </div>
 
-<p align="center">
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=E0C2C8&width=435&lines=its+proper+etiquette;to+respect+your+hostess)](https://git.io/typing-svg)
-</p>
-
 
 
 <div align="center">
