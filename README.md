@@ -23,9 +23,10 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
 
 
 
-<div align="center">
-  <img src="https://readme-typing-svg.demolab.com" />
-</div>
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com" width="600" />
+</p>
+
 
 
 
