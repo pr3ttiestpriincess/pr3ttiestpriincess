@@ -21,12 +21,6 @@ note: i ALWAYS allow c+h (except for people on my dni) even when its not in my n
 
 </div>
 
-<div align="center">
-
-[![Typing SVG](https://readme-typing-svg.demolab.com)](https://git.io/typing-svg)
-
-<br>
-
 
 <div align="center">
 i have 2 (well 3 kinda) strawpages because i felt like it 😴😴
