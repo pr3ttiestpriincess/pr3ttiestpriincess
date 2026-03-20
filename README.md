@@ -1,4 +1,4 @@
-<img width="832" height="56" alt="borderfancy" src="https://github.com/user-attachments/assets/17ce2db5-2894-4fcf-adbc-2d6b2d517add" />
+<img width="603" height="603" alt="image" src="https://github.com/user-attachments/assets/e3ec9918-82b0-4338-8c55-36ebef5ab894" /><img width="832" height="56" alt="borderfancy" src="https://github.com/user-attachments/assets/17ce2db5-2894-4fcf-adbc-2d6b2d517add" />
 <p align="center">
 read me ♡
 
@@ -41,3 +41,9 @@ this spotify thing looks ahh on my profile 💝
 <img width="832" height="56" alt="borderfancy" src="https://github.com/user-attachments/assets/64b26289-c43a-4315-86a6-5472edbe5f1d" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=E0C2C8&width=435&lines=its+proper+etiquette;to+respect+your+hostess)](https://git.io/typing-svg)
+
+
+<img width="603" height="603" alt="image" src="https://github.com/user-attachments/assets/ed3b3235-4ad2-4db8-a60e-0698dae661d4" />
+<p align="center">
+my cool pr3ty kinsona / what i looked like in my past life as her 👀
+
