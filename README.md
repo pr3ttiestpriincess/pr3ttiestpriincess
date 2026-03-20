@@ -38,6 +38,10 @@ ALWAYS. i̲w̲c̲ and c̲a̲r̲e̲
 </p>
 this spotify thing looks ahh on my profile 💝
 
+<p align="center"> 
+my alts
+[alt](https://github.com/voidstarcrown) &nbsp; [alt](https://github.com/pr3typrincess) &nbsp; [alt](https://github.com/pr3ttypriincess) &nbsp; [alt](https://github.com/bananapeelcivilian) &nbsp; [alt](https://github.com/durrfish)
+
 <img width="832" height="56" alt="borderfancy" src="https://github.com/user-attachments/assets/64b26289-c43a-4315-86a6-5472edbe5f1d" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=E0C2C8&width=435&lines=its+proper+etiquette;to+respect+your+hostess)](https://git.io/typing-svg)
