@@ -1,4 +1,4 @@
-<img width="603" height="603" alt="image" src="https://github.com/user-attachments/assets/e3ec9918-82b0-4338-8c55-36ebef5ab894" /><img width="832" height="56" alt="borderfancy" src="https://github.com/user-attachments/assets/17ce2db5-2894-4fcf-adbc-2d6b2d517add" />
+
 <p align="center">
 read me ♡
 
