@@ -43,7 +43,5 @@ this spotify thing looks ahh on my profile 💝
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&pause=1000&color=E0C2C8&width=435&lines=its+proper+etiquette;to+respect+your+hostess)](https://git.io/typing-svg)
 
 
-<img width="603" height="603" alt="image" src="https://github.com/user-attachments/assets/ed3b3235-4ad2-4db8-a60e-0698dae661d4" />
-<p align="center">
-my cool pr3ty kinsona / what i looked like in my past life as her 👀
+
 
