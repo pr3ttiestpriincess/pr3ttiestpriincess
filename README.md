@@ -40,7 +40,8 @@ this spotify thing looks ahh on my profile 💝
 
 <p align="center"> 
 my alts
-[alt](https://github.com/voidstarcrown) &nbsp; [alt](https://github.com/pr3typrincess) &nbsp; [alt](https://github.com/pr3ttypriincess) &nbsp; [alt](https://github.com/bananapeelcivilian) &nbsp; [alt](https://github.com/durrfish)
+
+  [alt](https://github.com/voidstarcrown) &nbsp; [alt](https://github.com/pr3typrincess) &nbsp; [alt](https://github.com/pr3ttypriincess) &nbsp; [alt](https://github.com/bananapeelcivilian) &nbsp; [alt](https://github.com/durrfish)
 
 <img width="832" height="56" alt="borderfancy" src="https://github.com/user-attachments/assets/64b26289-c43a-4315-86a6-5472edbe5f1d" />
 
