@@ -7,8 +7,9 @@ $$\color{#e8cbd4}" \space \color{white}\text{come o𝓷 girls !} \space \color{#
 copinglink　kin
 
 <p align="center">
-  <img src="https://img.shields.io">
+  [fullkin](#)
 </p>
+
 
 
 
