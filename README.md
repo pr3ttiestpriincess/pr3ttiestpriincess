@@ -10,7 +10,7 @@ $$\color{#e8cbd4}﹒fullkin    ͜ $$
 
 <div align="center">
 
-[STRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [2ND STRAWPAGE](https://pr3tyslacedbow.straw.page/) &nbsp; [ATA](https://pr3ttiestpriincess.atabook.org) &nbsp; [PRONOUNS.CC](https://pronouns.cc/@pr3ttiestpriincess) &nbsp; [AGEDRE STRAWPAGE](https://pr3tyscastle.straw.page/)
+[STRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [ATA](https://pr3ttiestpriincess.atabook.org) &nbsp; [PRONOUNS.CC](https://pronouns.cc/@pr3ttiestpriincess)
 
 </div>
 
