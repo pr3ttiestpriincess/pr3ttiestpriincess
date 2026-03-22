@@ -14,12 +14,6 @@ $$\color{#e8cbd4}" \space \color{white}\text{come o𝓷 girls !} \space \color{#
 
 $$\color{#e8cbd4}﹒fullkin    ͜ $$
 
-<div align="center">
-  <details>
-    <summary>OPENING_[PR3TYGUI]=INFO/byi/</summary>
-    <p>before you interact with me, i am quite sensitive around some people so use tone tags please! be aware i wont be able to tell if i did something wrong all the time, and i wont always realise if what i said sounds mean, bluudud kins iwc since im already friends with one</p>
-  </details>
-</div>
 
 <div align="center">
 
