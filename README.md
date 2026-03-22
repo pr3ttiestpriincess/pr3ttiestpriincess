@@ -3,9 +3,7 @@
 
 
 
-<p align="center">
-  ${\color{#e8cbd4}"}$ come o𝓷 girls ! ${\color{#e8cbd4}"}$　${\color{#a793a6}(◞ ༎ ◟⑅)}$　${\color{#e8cbd4}pr3ty \space fictkin}$　${\color{#666e77}+ \space IRL}$　${\color{#e8cbd4}𝓭oubles}$　${\color{#666e77}𝓓𝓝𝓘}$　${\color{#a793a6}ty!}$
-</p>
+
 
 
 copinglink　kin
