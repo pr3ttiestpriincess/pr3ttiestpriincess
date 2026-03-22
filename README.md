@@ -25,4 +25,10 @@ $$\color{#e8cbd4}﹒fullkin    ͜ $$
 <img width="350" height="195" alt="image" src="https://github.com/user-attachments/assets/55d209c8-4a76-4ab2-b7de-e12d2e0b9519" />
 </p>
 
+<div align="center">
+
+[CUT THROAT TEA PARTY!](https://www.youtube.com/watch?v=hMXY0TlsPWw) 
+
+</div>
+
 <img width="889" height="159" alt="image" src="https://github.com/user-attachments/assets/9a9f8e48-7bf2-4663-bb86-73933dc07238" />
