@@ -6,9 +6,9 @@ $$\color{#e8cbd4}" \space \color{white}\text{come o𝓷 girls !} \space \color{#
 <p align="center">
 copinglink　kin
 
-<div align="center">
-  <font color="#e8cbd4">fullkin</font>
-</div>
+<p align="center">
+  <img src="https://img.shields.io">
+</p>
 
 
 
