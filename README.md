@@ -16,7 +16,7 @@ $$\color{#e8cbd4}﹒fullkin    ͜ $$
 
 <div align="center">
   <details>
-    <summary>OPENING[PR3TYGUI]=INFO/byi/</summary>
+    <summary>OPENING_[PR3TYGUI]=INFO/byi/</summary>
     <p>byi</p>
   </details>
 </div>
