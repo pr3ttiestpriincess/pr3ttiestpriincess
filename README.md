@@ -17,7 +17,7 @@ $$\color{#e8cbd4}﹒fullkin    ͜ $$
 
 <div align="center">
 
-[STRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [ATA](https://pr3ttiestpriincess.atabook.org) &nbsp; [PRONOUNS.CC](https://pronouns.cc/@pr3ttiestpriincess)
+[𝓢TRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [𝓐TA](https://pr3ttiestpriincess.atabook.org) &nbsp; [PRONOUNS.CC](https://pronouns.cc/@pr3ttiestpriincess)
 
 </div>
 
