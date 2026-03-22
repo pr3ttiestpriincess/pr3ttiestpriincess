@@ -13,8 +13,6 @@ $$\color{#e8cbd4}﹒fullkin    ͜ $$
 [STRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [ATA](https://pr3ttiestpriincess.atabook.org) &nbsp; [PRONOUNS.CC](https://pronouns.cc/@pr3ttiestpriincess)
 
 </div>
-
-
 <img width="889" height="247" alt="image" src="https://github.com/user-attachments/assets/148d5a37-4f5f-4b35-a916-f25c1a1708f4" />
 
 
