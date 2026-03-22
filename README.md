@@ -6,7 +6,7 @@ $$\color{#e8cbd4}" \space \color{white}\text{come o𝓷 girls !} \space \color{#
 <p align="center">
     ͜  copinglink　kin  ୨˚̣̣̣୧　
 
-$$\color{#e8cbd4}fullkin    ͜ $$
+$$\color{#e8cbd4}𖧁𝜚   fullkin    ͜ $$
 
 
 
