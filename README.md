@@ -4,7 +4,7 @@
 
 
 
- ${\color{#a793a6}"}$　come　on　girls　!　　 ${\color{#a793a6}"}$
+ ${\color{#e8cbd4}"}$　come　on　girls　!　　 ${\color{#e8cbd4}"}$
 ${\color{#a793a6}(◞ ༎ ◟⑅)}$
 
 
