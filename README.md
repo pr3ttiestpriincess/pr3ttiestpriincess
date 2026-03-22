@@ -3,7 +3,7 @@
 
 
 
-
+<p align="center"> 
  ${\color{#e8cbd4}"}$　come　o𝓷　girls　!　　 ${\color{#e8cbd4}"}$
 ${\color{#a793a6}(◞ ༎ ◟⑅)}$
  ${\color{#e8cbd4}pr3ty　fictkin}$
