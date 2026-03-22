@@ -5,3 +5,5 @@
 
 
 　come　on　girls　!　　
+
+${\color{magenta}This \space is \space a \space test}$
