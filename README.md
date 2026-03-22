@@ -6,8 +6,9 @@ $$\color{#e8cbd4}" \space \color{white}\text{come o𝓷 girls !} \space \color{#
 <p align="center">
 copinglink　kin
 
-<p align="center">
-  ${\color{#e8cbd4}fullkin}$
-</p>
+<div align="center">
+  <font color="#e8cbd4">fullkin</font>
+</div>
+
 
 
