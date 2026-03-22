@@ -4,7 +4,6 @@
 
 
 
-　come　on　girls　!　　
+　come　on　girls　!　　${\color{#a793a6}This \space is \space a \space test}$
 
-${\color{#a793a6}This \space is \space a \space test}$
 
