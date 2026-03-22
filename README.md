@@ -5,6 +5,9 @@
 $$\color{#e8cbd4}" \space \color{white}\text{come o𝓷 girls !} \space \color{#e8cbd4}" \space \color{#a793a6}(◞ \space ༎ \space ◟⑅) \space \color{#e8cbd4}\text{pr3ty fictkin} \space \color{#666e77}\text{+ IRL} \space \color{#e8cbd4}\text{𝓭oubles} \space \color{#666e77}\text{𝓓𝓝𝓘} \space \color{#a793a6}\text{ty!}$$
 <p align="center">
 copinglink　kin
-${\color{#e8cbd4}fullkin}$
+
+<p align="center">
+  ${\color{#e8cbd4}fullkin}$
+</p>
 
 
