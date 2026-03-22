@@ -27,7 +27,7 @@ $$\color{#e8cbd4}﹒fullkin    ͜ $$
 
 <div align="center">
 
-[𝓶𝔂 𝓽𝓱𝓮𝓶𝓮](https://www.youtube.com/watch?v=hMXY0TlsPWw) 
+[♡](https://www.youtube.com/watch?v=hMXY0TlsPWw) 
 
 </div>
 
