@@ -21,4 +21,6 @@ $$\color{#e8cbd4}﹒fullkin    ͜ $$
 
 </div>
 
+<img width="950" height="643" alt="image" src="https://github.com/user-attachments/assets/3f44698f-9416-4d8b-b7fd-d93e172e917c" />
+
 <img width="889" height="159" alt="image" src="https://github.com/user-attachments/assets/9a9f8e48-7bf2-4663-bb86-73933dc07238" />
