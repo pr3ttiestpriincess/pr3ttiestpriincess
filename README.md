@@ -15,8 +15,16 @@ $$\color{#e8cbd4}" \space \color{white}\text{come o𝓷 girls !} \space \color{#
 $$\color{#e8cbd4}﹒fullkin    ͜ $$
 
 <div align="center">
+  <details>
+    <summary>OPENING[PR3TYGUI]=INFO/byi/</summary>
+    <p>byi</p>
+  </details>
+</div>
+
+<div align="center">
 
 [STRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [ATA](https://pr3ttiestpriincess.atabook.org) &nbsp; [PRONOUNS.CC](https://pronouns.cc/@pr3ttiestpriincess)
 
 </div>
+
 <img width="889" height="159" alt="image" src="https://github.com/user-attachments/assets/9a9f8e48-7bf2-4663-bb86-73933dc07238" />
