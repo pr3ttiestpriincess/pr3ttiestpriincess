@@ -6,9 +6,7 @@ $$\color{#e8cbd4}" \space \color{white}\text{come o𝓷 girls !} \space \color{#
 <p align="center">
 copinglink　kin
 
-<p align="center">
-  [fullkin](#)
-</p>
+
 
 
 
