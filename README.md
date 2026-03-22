@@ -17,7 +17,7 @@ $$\color{#e8cbd4}﹒fullkin    ͜ $$
 <div align="center">
   <details>
     <summary>OPENING_[PR3TYGUI]=INFO/byi/</summary>
-    <p>before you interact with me, i am quite sensitive around some people so use tone tags please! be aware i wont be able to tell if i did something wrong all the time, and i wont always realise if what i said sounds mean, bluudud kins kindly dni or just try to not be my friend, i am already friends with a bluu fictkin. i wont block others that kin bluudud, just dont interact with me pls </p>
+    <p>before you interact with me, i am quite sensitive around some people so use tone tags please! be aware i wont be able to tell if i did something wrong all the time, and i wont always realise if what i said sounds mean, bluudud kins iwc since im already friends with one</p>
   </details>
 </div>
 
