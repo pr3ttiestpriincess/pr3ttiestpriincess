@@ -2,8 +2,8 @@
 
 
 
-| <p align="center"> ${\color{#e8cbd4}"}$ come o𝓷 girls ! ${\color{#e8cbd4}"}$ ${\color{#a793a6}(◞ ༎ ◟⑅)}$ ${\color{#e8cbd4}pr3ty \space fictkin}$ ${\color{#666e77}+ \space IRL}$ ${\color{#e8cbd4}𝓭oubles}$ ${\color{#666e77}𝓓𝓝𝓘}$ ${\color{#a793a6}ty!}$ </p> |
-| :---: |
+$$\color{#e8cbd4}" \space \color{black}\text{come o𝓷 girls !} \space \color{#e8cbd4}" \space \color{#a793a6}(◞ \space ༎ \space ◟⑅) \space \color{#e8cbd4}\text{pr3ty fictkin} \space \color{#666e77}\text{+ IRL} \space \color{#e8cbd4}\text{𝓭oubles} \space \color{#666e77}\text{𝓓𝓝𝓘} \space \color{#a793a6}\text{ty!}$$
+
 
 
 
