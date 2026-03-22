@@ -11,5 +11,7 @@ ${\color{#666e77}+　IRL}$
 ${\color{#e8cbd4}𝓭oubles}$
 ${\color{#666e77}𝓓𝓝𝓘}$
 ${\color{#a793a6}ty!}$
+copinglink　kin
+${\color{#e8cbd4}fullkin}$
 
 
