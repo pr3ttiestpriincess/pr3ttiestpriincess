@@ -15,7 +15,8 @@ $$\color{#e8cbd4}﹒fullkin    ͜ $$
 </div>
 
 
-<img width="889" height="530" alt="image" src="https://github.com/user-attachments/assets/50b100a0-47dd-4ce7-97fd-be101ab55c12" />
+<img width="889" height="247" alt="image" src="https://github.com/user-attachments/assets/148d5a37-4f5f-4b35-a916-f25c1a1708f4" />
+
 
 
 
