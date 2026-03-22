@@ -6,4 +6,5 @@
 
 　come　on　girls　!　　
 
-${\color{magenta}This \space is \space a \space test}$
+${\color{#FF69B4}This \space is \space a \space test}$
+
