@@ -8,6 +8,8 @@ $$\color{#e8cbd4}" \space \color{white}\text{come o𝓷 girls !} \space \color{#
 
 $$\color{#e8cbd4}﹒fullkin    ͜ $$
 
+[STRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [2ND STRAWPAGE](https://pr3tyslacedbow.straw.page/) &nbsp; [ATA](https://pr3ttiestpriincess.atabook.org) &nbsp; [PRONOUNS.CC](https://pronouns.cc/@pr3ttiestpriincess) &nbsp; [AGEDRE STRAWPAGE](https://pr3tyscastle.straw.page/)
+
 <img width="889" height="530" alt="image" src="https://github.com/user-attachments/assets/50b100a0-47dd-4ce7-97fd-be101ab55c12" />
 
 
