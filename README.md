@@ -5,6 +5,6 @@
 
 
 　come　on　girls　!　　
- ${\color{#a793a6}︶︶}$
+ ${\color{#a793a6}◡◡}$
 
 
