@@ -17,7 +17,7 @@ $$\color{#e8cbd4}﹒fullkin　synpath    ͜ $$
 
 <div align="center">
 
-[𝓢TRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [𝓐TA](https://pr3ttiestpriincess.atabook.org) &nbsp; [𝓟RONOUNS.CC](https://pronouns.cc/@pr3ttiestpriincess)
+[𝓢TRAWPAGE](https://pr3ttiestofthemall.straw.page) &nbsp; [𝓐TA](https://pr3ttiestpriincess.atabook.org) &nbsp; [rmking pronounscc]
 
 </div>
 
