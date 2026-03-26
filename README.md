@@ -27,7 +27,7 @@ $$\color{#e8cbd4}﹒fullkin　synpath    ͜ $$
 
 <div align="center">
 
-[♡](https://www.youtube.com/watch?v=CM-01Lk3fuM) 
+[♡](https://www.youtube.com/watch?v=i9m3vaDfCh8) 
 
 </div>
 
