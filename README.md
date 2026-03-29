@@ -25,9 +25,19 @@ $$\color{#e8cbd4}﹒fullkin　synpath    ͜ $$
 <img width="350" height="195" alt="image" src="https://github.com/user-attachments/assets/55d209c8-4a76-4ab2-b7de-e12d2e0b9519" />
 </p>
 
+
+
 <div align="center">
 
-[♡](https://www.youtube.com/watch?v=i9m3vaDfCh8) &nbsp; [@faded-radiance](https://github.com/faded-radiance) &nbsp; is a chud
+[@faded-radiance](https://github.com/faded-radiance) &nbsp; is a chud
+
+</div>
+
+<div align="center">
+
+
+
+[♡](https://www.youtube.com/watch?v=i9m3vaDfCh8)
 
 </div>
 
