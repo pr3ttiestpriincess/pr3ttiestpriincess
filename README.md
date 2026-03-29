@@ -27,7 +27,7 @@ $$\color{#e8cbd4}﹒fullkin　synpath    ͜ $$
 
 <div align="center">
 
-[♡](https://www.youtube.com/watch?v=i9m3vaDfCh8) 
+[♡](https://www.youtube.com/watch?v=i9m3vaDfCh8) &nbsp; [@faded-radiance](https://github.com/faded-radiance) &nbsp; is a chud
 
 </div>
 
