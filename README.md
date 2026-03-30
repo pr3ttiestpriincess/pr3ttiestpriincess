@@ -29,7 +29,7 @@ $$\color{#e8cbd4}﹒fullkin　synpath    ͜ $$
 
 <div align="center">
 
-[@faded-radiance](https://github.com/faded-radiance) &nbsp; is a chud
+[@396m6](https://github.com/396m6) &nbsp; my spam follow
 
 </div>
 
