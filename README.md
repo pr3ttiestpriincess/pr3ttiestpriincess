@@ -47,6 +47,5 @@ $$\color{#e8cbd4}﹒fullkin　synpath    ͜ $$
 <img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/83025999-5ca6-472a-a233-1685fa09a205" />
 </p>
 
-<img width="120" height="104" alt="image" src="https://github.com/user-attachments/assets/25f9e9c9-e9fb-4dd3-93ce-4d7c455a451c" />
 
 
