@@ -42,3 +42,11 @@ $$\color{#e8cbd4}﹒fullkin　synpath    ͜ $$
 </div>
 
 <img width="889" height="159" alt="image" src="https://github.com/user-attachments/assets/9a9f8e48-7bf2-4663-bb86-73933dc07238" />
+
+
+<p align="center">
+  mu creator is s o cool
+<p align="center">
+  <img width="640" height="302" alt="image" src="https://github.com/user-attachments/assets/5d391267-e1b9-4401-bb22-f25e60622bb4" />
+</p>
+
