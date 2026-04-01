@@ -22,7 +22,7 @@ $$\color{#e8cbd4}﹒fullkin　synpath    ͜ $$
 </div>
 
 <p align="center">
-<img width="350" height="195" alt="image" src="https://github.com/user-attachments/assets/55d209c8-4a76-4ab2-b7de-e12d2e0b9519" />
+<img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/83025999-5ca6-472a-a233-1685fa09a205" />
 </p>
 
 
