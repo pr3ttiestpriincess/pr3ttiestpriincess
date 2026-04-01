@@ -22,7 +22,7 @@ $$\color{#e8cbd4}﹒fullkin　synpath    ͜ $$
 </div>
 
 <p align="center">
-<img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/83025999-5ca6-472a-a233-1685fa09a205" />
+<img width="462" height="295" alt="image" src="https://github.com/user-attachments/assets/3c14d10b-eb56-44c8-a601-c25cd53c613d" />
 </p>
 
 
@@ -42,5 +42,9 @@ $$\color{#e8cbd4}﹒fullkin　synpath    ͜ $$
 </div>
 
 <img width="889" height="159" alt="image" src="https://github.com/user-attachments/assets/9a9f8e48-7bf2-4663-bb86-73933dc07238" />
+
+<p align="center">
+<img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/83025999-5ca6-472a-a233-1685fa09a205" />
+</p>
 
 
