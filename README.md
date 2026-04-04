@@ -35,7 +35,7 @@ $$\color{#e8cbd4}﹒fullkin　synpath    ͜ $$
 
 <div align="center">
 
-[c00llestkidd](https://github.com/c00llestkidd) [bluudude](https://github.com/bluudude) my trio
+[@c00llestkidd](https://github.com/c00llestkidd) [@bluudude](https://github.com/bluudude) my trio
 
 </div>
 
