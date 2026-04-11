@@ -25,11 +25,6 @@ $$\color{#e8cbd4}﹒fullkin$$
 <img width="462" height="295" alt="image" src="https://github.com/user-attachments/assets/3c14d10b-eb56-44c8-a601-c25cd53c613d" />
 </p>
 
-<div align="center">
-
-[@winslet](https://github.com/winsIet) &nbsp; honorable mention! my parent ^_^
-
-</div>
 
 <div align="center">
 
