@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-iwec and care always. my mental health is not good
+iwec and care always. my mental health is not good. friends only iw care
 
 <img width="889" height="572" alt="image" src="https://github.com/user-attachments/assets/380b16d1-b4cd-4849-b794-5321a9d62c3d" />
 
