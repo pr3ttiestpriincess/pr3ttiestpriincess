@@ -1,6 +1,10 @@
 <img width="889" height="159" alt="image" src="https://github.com/user-attachments/assets/2ac0fd0d-0242-415f-8a36-456ead43df0b" />
 
 <p align="center">
+$$\color{#e8cbd4} \space \color{white}\text{" Fake flowers may not interact; I dont need you interrupting my bloom. " = Doubles DNI}$$
+
+
+<p align="center">
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=e8cbd4" alt="visitor counter">
 </p>
 
