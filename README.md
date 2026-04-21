@@ -1,7 +1,5 @@
 <img width="889" height="159" alt="image" src="https://github.com/user-attachments/assets/2ac0fd0d-0242-415f-8a36-456ead43df0b" />
 
-<p align="center">
-bad mental state because i recently got traumatised iwe care
 
 
 <p align="center">
