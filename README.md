@@ -49,9 +49,41 @@ $$\color{#e8cbd4}﹒fullkin$$
 
 <img width="889" height="159" alt="image" src="https://github.com/user-attachments/assets/9a9f8e48-7bf2-4663-bb86-73933dc07238" />
 
-<p align="center">
-<img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/83025999-5ca6-472a-a233-1685fa09a205" />
-</p>
+<div align="center">
+sometimes u might see name tags in my name, and for others too so ill list what some of them mean for those who dont know ^q^</summary>
 
+<div align="center">
+  <details>
+    <summary>dniuf:</summary>
+    <p>dniuf usually means "do not interact unless friend", if ur not someone that person knows then dont with them interact at that moment</p>
+  </details>
+</div>
 
+<div align="center">
+  <details>
+    <summary>dniuid:</summary>
+    <p>dniuid means "do not interact unless i do", it means they dont want anyone to talk to them unless they start talking to someone first, then that someone can respond back. cause i dont know how to word properly, ill add smt extra, just because they interacted with one person first not EVERYONE can interact with them after that, only the specific person they talked to</p>
+  </details>
+</div>
+
+<div align="center">
+  <details>
+    <summary>dniuid/f or dniuf/id:</summary>
+    <p>this one isnt seen used by many ( atleast i think so ) but it means they dont want random people talking to them unless they talk to them first, its like dniuid and dniuf mixed. they dont mind if one of their friends want to int but for random people/people they dont know, they dont want them interacting unless they do with them first</p>
+  </details>
+</div>
+
+<div align="center">
+  <details>
+    <summary>dni:</summary>
+    <p>dni means "do not interact", commonly used if someone is going through a bad time, or ran out of social battery etc. people are confused on why someone would use this on a social game, but i see no problem with it. some people have ponytown as their comfort game and theyd probably like to play it but just simply not want people to interact with them, plus telling someone to get off the game if they have dni is just weird cause first u shouldnt be interacting and second people wont listen anyway so theres no point^_^</p>
+  </details>
+</div>
+
+<div align="center">
+  <details>
+    <summary>dniu(name):</summary>
+    <p>this one isnt seen used by many either but it means they dont want anyone to interact with them except for a specific person. that person could be a comfort friend, someone special, or their best friend and etc</p>
+  </details>
+</div>
 
