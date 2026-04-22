@@ -47,7 +47,9 @@ $$\color{#e8cbd4}﹒fullkin$$
 
 </div>
 
-<img width="889" height="159" alt="image" src="https://github.com/user-attachments/assets/9a9f8e48-7bf2-4663-bb86-73933dc07238" />
+
+
+
 
 <div align="center">
 sometimes u might see name tags in my name, and for others too so ill list what some of them mean for those who dont know ^q^</summary>
@@ -86,4 +88,10 @@ sometimes u might see name tags in my name, and for others too so ill list what 
     <p>this one isnt seen used by many either but it means they dont want anyone to interact with them except for a specific person. that person could be a comfort friend, someone special, or their best friend and etc</p>
   </details>
 </div>
+
+
+
+
+<img width="889" height="159" alt="image" src="https://github.com/user-attachments/assets/9a9f8e48-7bf2-4663-bb86-73933dc07238" />
+
 
