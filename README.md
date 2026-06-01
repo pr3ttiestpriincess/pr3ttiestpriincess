@@ -6,7 +6,8 @@
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=e8cbd4" alt="visitor counter">
 </p>
 
-
+if u see another pr3ty 'fictionkin' with half of my labels "srskin, IRL, soulbond, fullkin, copinglink etc" THEYRE MOST LIKELY A COPier because those labels are wayy too specific for a specific character, i kno im the first to use all those labels at once ! get ur own identity or ask me to use those labels, no i dont own them but its really really invasive whenever someone uses all those labels at once when i also do that
+with pr3ty! i found all those labels myself by doing research n it makES ME SICK when people copy them. ty!also pmo do ur research on them first if u copy them. it makes me sick in the stomach esp because i find comfort in seeing doubles and seeing others just copy half my identity is tiring. #losermove 😂😂
 
 <img width="889" height="572" alt="image" src="https://github.com/user-attachments/assets/380b16d1-b4cd-4849-b794-5321a9d62c3d" />
 
