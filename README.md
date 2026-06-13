@@ -6,7 +6,7 @@
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=e8cbd4" alt="visitor counter">
 </p>
 
-keep in mind when talking to me, i always delusionally believe im pr3typriincess
+byi please keep in mind when talking to me, I genuinely think I am pr3typriincess IRL
 
 <img width="889" height="572" alt="image" src="https://github.com/user-attachments/assets/380b16d1-b4cd-4849-b794-5321a9d62c3d" />
 
