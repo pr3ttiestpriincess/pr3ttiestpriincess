@@ -11,7 +11,7 @@ byi please keep in mind when talking to me, I genuinely think I am pr3typriinces
 <img width="889" height="572" alt="image" src="https://github.com/user-attachments/assets/380b16d1-b4cd-4849-b794-5321a9d62c3d" />
 
 
-$$\color{#e8cbd4}" \space \color{white}\text{come o𝓷 girls !} \space \color{#e8cbd4}" \space \color{#a793a6}(◞ \space ༎ \space ◟⑅) \space \color{#e8cbd4}\text{pr3ty seriouskin} \space \color{#666e77}\text{+ IRL} \space \color{#e8cbd4}\text{𝓭oubles} \space \color{#666e77}\text{𝓕𝓣𝓘} \space \color{#a793a6}\text{ok?}$$
+$$\color{#e8cbd4}" \space \color{white}\text{come o𝓷 girls !} \space \color{#e8cbd4}" \space \color{#a793a6}(◞ \space ༎ \space ◟⑅) \space \color{#e8cbd4}\text{pr3ty seriouskin} \space \color{#666e77}\text{+ IRL} \space \color{#e8cbd4}\text{𝓭oubles} \space \color{#666e77}\text{FTI} \space \color{#a793a6}\text{ok?}$$
 <p align="center">
     ͜  copinglink　kin  ୨˚̣̣̣୧　pr3ty soulbond    ͜ 
 
