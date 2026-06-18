@@ -6,7 +6,7 @@
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=e8cbd4" alt="visitor counter">
 </p>
 
-byi please keep in mind when talking to me, I genuinely think I am pr3typriincess IRL
+pr3typriincess is my literal identity inside and out, but the internet is just the safest place for me to express it, i am also pyschologically her
 
 <img width="889" height="572" alt="image" src="https://github.com/user-attachments/assets/380b16d1-b4cd-4849-b794-5321a9d62c3d" />
 
