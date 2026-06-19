@@ -11,7 +11,7 @@
 i luv al my frens ill miss u guys ok !
 
 
-pr3typriincess is my literal identity inside and out, but the internet is just the best place for me to express it, i am intrinsically her
+pr3typriincess is my literal identity inside and out, but the internet is just the best place for me to express it, i am her in every way
 
 <img width="889" height="572" alt="image" src="https://github.com/user-attachments/assets/380b16d1-b4cd-4849-b794-5321a9d62c3d" />
 
