@@ -6,8 +6,8 @@
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=e8cbd4" alt="visitor counter">
 </p>
 
-PLS READ!! this is important 
-i am no longer going to be very active on ponytown. i have my reasons ^.^ i will come on very frequently once in a while so its rare if u see me. kind reguards 💝💝🦄
+# PLS READ!! this is important 
+# i am no longer going to be very active on ponytown. i have my reasons ^.^ i will come on very frequently once in a while so its rare if u see me. kind reguards 💝💝🦄
 i luv al my frens ill miss u guys ok !
 
 
