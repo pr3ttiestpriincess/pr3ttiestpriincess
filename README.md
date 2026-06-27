@@ -6,9 +6,7 @@
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=‿♡+peasants&color=e8cbd4" alt="visitor counter">
 </p>
 
-# PLS READ!! this is important 
-# i am no longer going to be very active on ponytown. i have my reasons ^.^ i will come on very infrequently once in a while so its rare if u see me. kind reguards 💝💝🦄
-i luv al my frens ill miss u guys ok !
+# ill try my best 2 be more active on pt
 
 
 pr3typriincess is my literal identity inside and out, but the internet is just the best place for me to express it, i am her in every way
